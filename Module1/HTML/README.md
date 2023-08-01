@@ -1,2 +1,2 @@
-# Tharun
+# Dhanuh N Naik
  web dsgn asgn
